@@ -1,4 +1,4 @@
-
+smart Script for 3008 offers the most advanced 3008 Script, with invisibility and no clip. Perfect for dominating any match.
 
 
 
